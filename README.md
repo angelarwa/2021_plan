@@ -21,8 +21,9 @@
 3/6-3/7 오답노트 정리<br>
 
 OPIc 3/17<br>
-3/8~3/12 script memorization!!
+3/8~3/12 script memorization!!(total 15)<br>
 
 TESAT 3/20 <br>
+3/9~3/12 하루10분이론완성노트<br>
 
 증권투자권유대행인 3/28 <br>
