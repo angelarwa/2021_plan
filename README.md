@@ -18,7 +18,7 @@
 3/6-3/7 오답노트 정리<br>
 
 OPIc 3/17<br>
-3/8-3/12 script memorization!!(total 15)<br>
+3/8-3/16 script memorization!!(total 15)<br>
 
 TESAT 3/20 <br>
 3/9-3/12 하루10분이론완성노트+필수핵심용어100선+기출70제<br>
