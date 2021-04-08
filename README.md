@@ -31,6 +31,6 @@ TESAT 3/20 <br>
 3/24-4/7 최태성 강의듣기&책 문풀<br>
 10일 강의듣고 판서 통암기 + 3일 기출문제<br> 
 
-토스<br>
+5 토스<br>
 script memorization!!<br>
 
