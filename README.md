@@ -32,6 +32,6 @@
 10일 강의듣고 판서 통암기 + 3일 기출문제<br> 
 4/10 최태성 전야제 강의
 
-5 토스/토익<br>
+5 English Skills <br>
 script memorization!!<br>
 
