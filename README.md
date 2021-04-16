@@ -32,6 +32,8 @@
 10일 강의듣고 판서 통암기 + 3일 기출문제<br> 
 4/10 최태성 전야제 강의
 
-5 English Skills <br>
+5yue English Skills <br>
 script memorization!!<br>
+
+4/16~4/30 금공 실전모의고사+NCS running on...
 
