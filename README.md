@@ -36,5 +36,5 @@
 script memorization!!<br>
 
 4/16~4/30 금공 실전모의고사+NCS running on...
-실전모의고사 1~3회 clear
+실전모의고사 1-3회 clear
 
