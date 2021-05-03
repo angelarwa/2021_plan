@@ -26,16 +26,17 @@
 3/24-26 출제예상문제<br>
 27일 실전모의고사<br>
 
-4/11 한국사 <br>
+(完)4/11 한국사 <br>
 4/7-4/10 기출문제&오답노트 <br>
 3/24-4/7 최태성 강의듣기&책 문풀<br>
 10일 강의듣고 판서 통암기 + 3일 기출문제<br> 
 4/10 최태성 전야제 강의
 
-5yue English Skills <br>
-script memorization!!<br>
-
-4/16~4/30 금공 실전모의고사+NCS running on...<br>
+(完)4/16~4/30 금공 실전모의고사+NCS running on...<br>
 실전모의고사 1-3회 clear<br>
 기출복원 모의고사 4/26 (오답노트 4/27)
 전공과목 기출문제 4/26~4/30
+
+5/1~5/9 토익<br>
+5yue English Skills <br>
+script memorization!!<br>
