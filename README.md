@@ -37,6 +37,11 @@
 기출복원 모의고사 4/26 (오답노트 4/27)
 전공과목 기출문제 4/26~4/30
 
-5/1~5/9 토익<br>
+5/9 토익<br>
+5/1~5/8 해커스 LC/RC 1000
+
+
 5yue English Skills <br>
+
+
 script memorization!!<br>
