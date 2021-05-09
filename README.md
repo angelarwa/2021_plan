@@ -41,7 +41,7 @@
 5/1~5/7 해커스 LC/RC 1000제 <br>
 5/8 프리미엄 모의고사<br>
 
-
+6/12 투자자산운용사<br>
 5yue English Skills <br>
 
 
