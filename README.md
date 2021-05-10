@@ -42,7 +42,8 @@
 5/8 프리미엄 모의고사<br>
 
 6/12 투자자산운용사<br>
-5yue English Skills <br>
+5/10~5/16 해커스 출제예상문제<br>
 
 
+6yue English Skills <br>
 script memorization!!<br>
