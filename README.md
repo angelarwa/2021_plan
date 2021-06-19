@@ -49,7 +49,7 @@
 5/29 기은 필기<br>
 
 6月 부의대이동 정리<br>
-6/14 set
-
+6/14~ set new
 6yue English Skills <br>
 script memorization!!<br>
+
