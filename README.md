@@ -53,3 +53,4 @@
 6yue English Skills <br>
 script memorization!!<br>
 
+ obsolete things 
