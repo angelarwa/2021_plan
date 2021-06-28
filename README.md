@@ -52,4 +52,6 @@
 6yue English Skills <br>
 script memorization!!<br>
 
+7/5 Don't forget!!!
+
  obsolete things 
